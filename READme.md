@@ -3,4 +3,4 @@
 ![Image Alt](https://github.com/Googleyegambler/Googleyegambler/blob/983e18553a61d52451282658bfc14c3457d35b75/partay_-removebg-preview.png)
 ![Image Alt](https://github.com/Googleyegambler/Googleyegambler/blob/683992612f2583f1890cf8ef08f7af0587b0f60e/trans.png)
 ![Image Alt](https://github.com/Googleyegambler/Googleyegambler/blob/30fa81358e32c4d75abac2d06011ea898bcccc36/honk_snoo-removebg-preview.png)
-![Text Alt](ART BY DOKODAN ON TWITTER)
+(PFP ART BY DOKODAN ON TWITTER)
